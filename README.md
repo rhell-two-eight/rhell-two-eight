@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 About Me: Harrel Henry L. Tasic
 🔭 I’m currently working on my thesis.<br>👯 I’m looking to collaborate on gaming.<br>🤝 I’m looking for help with Zenless Zone Zero builds.<br>🌱 I’m currently learning nothing.<br>💬 Ask me about Umamusume.<br>⚡ Fun fact: I like Winning Ticket from "Umamusume: Pretty Derby".
 
 
